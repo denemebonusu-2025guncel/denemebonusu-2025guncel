@@ -1,4 +1,7 @@
-   <title>En Güvenilir Bahis Siteleri</title>
+title: Deneme Bonusu - 2025
+description: 2025 yılında yatırım yapmadan bonus veren en güvenilir deneme bonusu sitelerini listeledik. Şartsız bonuslar, üyelik şartları ve daha fazlası bu rehberde!
+keywords: deneme bonusu, şartsız bonus, bahis siteleri, yatırım yapmadan bonus, bonus veren siteler 2025
+author: Bonus Rehberi
 
 <div class="fixed-banner"
     onclick="if(event.target.tagName !== 'A') window.open('https://edtbt.ink/2NY9r5', '_blank');"
