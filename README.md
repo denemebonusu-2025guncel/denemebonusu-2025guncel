@@ -1,3 +1,13 @@
+<h1>Deneme Bonus Veren Siteler</h1>
+<h2>2025 Güncel deneme bonusu</h2>
+<title>
+    Deneme Bonusu Veren Siteler
+  </title>
+<meta name="description" content="2025 Deneme Bonusu Veren Kumar ve bahis siteleri">
+    <meta name="keywords" content="deneme bonusu veren siteler, bonus veren siteler, deneme bonusu, deneme bonusu veren yeni siteler, bedava bonus veren siteler, hoşgeldin bonusu veren siteler, deneme bonusu veren bahis siteleri, bonus veren bahis siteleri">
+
+
+
 <center><div class="fixed-banner"
     onclick="if(event.target.tagName !== 'A') window.open('https://edtbt.ink/4NMzuP', '_blank');"
     style="cursor: pointer;">
