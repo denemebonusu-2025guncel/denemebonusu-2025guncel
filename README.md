@@ -8,5 +8,7 @@
         <span style="white-space: nowrap;">1000 TL BONUS İÇİN ÜYE OL</span>
     </a>
 </div>
+![image](https://github.com/user-attachments/assets/1434f7cf-2d8d-4adb-857e-4b95767f22ee)
+
 <img src="https://cms.khtencxreopl.com/storage/medias/editorbet-18751579/content_18751579_458eccd3e535cb6538ac166a3c14debe.webp" alt="" width="300" height="300">
 
