@@ -6,8 +6,10 @@
 <br>        <span style="white-space: nowrap;">1000 TL BONUS İÇİN ÜYE OL</span>
     </a>
 </div>
+<a href="https://edtbt.ink/4NMzuP">
+  <img src="https://resmim.net/cdn/2025/06/10/ToXltH.jpg" title="Deneme Bonusu" width="800" height="600" />
+</a>
 
 
-<img src="https://resmim.net/cdn/2025/06/10/ToXltH.jpg" alt="" width="600" height="600">
 
 </center>
