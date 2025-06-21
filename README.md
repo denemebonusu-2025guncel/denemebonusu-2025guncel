@@ -8,6 +8,6 @@
 </div>
 
 
-<img src="https://resmim.net/cdn/2025/06/10/ToXltH.jpg" alt="" width="300" height="300">
+<img src="https://resmim.net/cdn/2025/06/10/ToXltH.jpg" alt="" width="600" height="600">
 
 </center>
