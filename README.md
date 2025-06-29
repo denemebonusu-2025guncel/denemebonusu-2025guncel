@@ -1,3 +1,5 @@
+
+<meta name="google-site-verification" content="NKhn5w2VONIZXfzuVmOmRDB0-25Y405-7LHjlTFmdJg" />
 <h1>🎰 2025 Deneme Bonusu Veren Siteler – Yatırımsız ve Şartsız Bonus Rehberi</h1>
 
 <p>
@@ -55,4 +57,4 @@ Deneme bonusu, bahis veya casino sitelerinin yeni üyelere verdiği yatırımsı
 <p>
 Bahis ve casino oyunları 18+ yaş için uygundur. Lütfen sorumlu oynayın ve bütçenizi aşmayın. Bu liste bilgilendirme amaçlıdır, tüm bonus detaylarını kayıt olmadan önce sitenin resmi sayfasından kontrol edin.
 </p>
-<meta name="google-site-verification" content="NKhn5w2VONIZXfzuVmOmRDB0-25Y405-7LHjlTFmdJg" />
+
