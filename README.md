@@ -22,9 +22,9 @@ En iyi <strong>yatırımsız deneme bonusu</strong> veren siteleri sizin için t
     <th>Editorbet</th>
   </tr>
   <tr>
-    <td><a href="https://cutt.ly/KrQnVYMx" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITZeo.gif" width="250" /></a></td>
-    <td><a href="https://cutt.ly/7rWja0JT" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITDgK.gif" width="250" /></a></td>
-    <td><a href="https://cutt.ly/PrEYyj8X" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITTFQ.gif" width="250" /></a></td>
+    <td><a href="https://edtbt.ink/qBMu2b" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITZeo.gif" width="250" /></a></td>
+    <td><a href="https://edtbt.ink/qBMu2b" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITDgK.gif" width="250" /></a></td>
+    <td><a href="https://edtbt.ink/qBMu2b" target="_blank"><img src="https://resmim.net/cdn/2025/06/29/TITTFQ.gif" width="250" /></a></td>
   </tr>
  
 </table>
@@ -50,6 +50,8 @@ Deneme bonusu, bahis veya casino sitelerinin yeni üyelere verdiği yatırımsı
 </ul>
 
 <h2>📣 Sorumlu Bahis Uyarısı</h2>
+<h3>📣 editörbet</h3>
+<h3> editorbet</h3>
 <p>
 Bahis ve casino oyunları 18+ yaş için uygundur. Lütfen sorumlu oynayın ve bütçenizi aşmayın. Bu liste bilgilendirme amaçlıdır, tüm bonus detaylarını kayıt olmadan önce sitenin resmi sayfasından kontrol edin.
 </p>
