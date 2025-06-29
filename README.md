@@ -26,28 +26,7 @@ En iyi <strong>yatırımsız deneme bonusu</strong> veren siteleri sizin için t
     <td><a href="https://cutt.ly/7rWja0JT" target="_blank"><img src="https://resmim.net/cdn/2025/06/17/TiXCEi.jpg" width="250" /></a></td>
     <td><a href="https://cutt.ly/PrEYyj8X" target="_blank"><img src="https://resmim.net/cdn/2025/06/23/TOpE4q.jpg" width="250" /></a></td>
   </tr>
-  <tr>
-    <td>2000TL HOŞ GELDİN BONUSU 🎁</td>
-    <td>1000₺ DENEME BONUSU 🎁</td>
-    <td>%100 SLOT ve CASİNO BONUSU 🎁</td>
-  </tr>
-  <tr>
-    <td><a href="https://cutt.ly/KrQnVYMx" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FFD700?style=for-the-badge&logoColor=black" /></a></td>
-    <td><a href="https://cutt.ly/7rWja0JT" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-800000?style=for-the-badge&logoColor=white" /></a></td>
-    <td><a href="https://cutt.ly/PrEYyj8X" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-ff69b4?style=for-the-badge&logoColor=black" /></a></td>
-  </tr>
-</table>
-
-
-    <td>%100 HOŞGELDİN BONUSU 🎁</td>
-    <td>750 TL DENEME BONUSU 🎁</td>
-    <td>%100 HOŞGELDİN BONUSU <br> 3000 TL 🎁</td>
-  </tr>
-  <tr>
-    <td><a href="https://piatrack1.com/ajhlajjz" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-32CD32?style=for-the-badge&logoColor=white" /></a></td>
-    <td><a href="https://cutt.ly/xrvbv2wY" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-00CED1?style=for-the-badge&logoColor=black" /></a></td>
-    <td><a href="https://refpa7480988.top/L?tag=d_4420769m_62079c_&site=4420769&ad=62079" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF6600?style=for-the-badge&logoColor=white" /></a></td>
-  </tr>
+ 
 </table>
 
 <h2>✅ Deneme Bonusu Nedir?</h2>
